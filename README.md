@@ -17,6 +17,6 @@
             𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘 𝚗𝚘𝚝 𝚋𝚘𝚝𝚑𝚎𝚛 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 . 𝚒 𝚑𝚊𝚟𝚎 𝚜𝚘𝚘 𝚖𝚞𝚌𝚑 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚜 𝚊𝚋𝚘𝚞𝚝 𝚝𝚑𝚒𝚜 , 𝚒 𝚍𝚘 𝚗𝚘𝚝 𝚕𝚒𝚔𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚖𝚘𝚛𝚎 𝚘𝚛 𝚕𝚎𝚜𝚜 . 𝚝𝚑𝚎𝚢 𝚊𝚕𝚕 𝚊𝚛𝚎 special 𝚝𝚘 𝚖𝚎 .
                  ♡ - 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 ! ^ ^ -  ♫
          ❥   - 𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚝𝚘 𝚝𝚑𝚎𝚜𝚎 𝚒 𝚜𝚙𝚎𝚗𝚍 𝚖𝚘𝚜𝚝 𝚝𝚒𝚖𝚎 𝚠𝚒𝚝𝚑 . - ❧ 
-         no i will not work on this page more its 😂😂 annoying 
+         no i will not work on this page more its 😂😂 annoying .hell
      
      
