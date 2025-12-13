@@ -1,16 +1,21 @@
-## Hi there 👋
+• ✧ -          𝚑𝚒𝚘 𝚝𝚑𝚎𝚛𝚎 !          - ✧ •
+                  
+                  ˢʰᵉ/ᵗʰᵉʸ/ᵗʰᵉᵐ
 
-<!--
-**TheHacker7n7/TheHacker7n7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+    ◇𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚜𝚎𝚟/𝚊𝚣𝚞𝚛𝚎! ◇
+    ❥ - 𝚒 𝚔𝚒𝚗 𝟶𝟶𝟽𝚗𝟽 . 𝚜𝚘 𝚢𝚘𝚞'𝚕𝚕 𝚜𝚎𝚎 𝚖𝚎 𝚞𝚜𝚒𝚗𝚐 𝚑𝚖 𝚖𝚘𝚜𝚝𝚕𝚢 ! ! ^_^ .
 
-Here are some ideas to get you started:
+    ✧ - sᴘᴇᴄɪᴀʟ ʜɪᴏ ᴛᴏ ᴍʏ ɢᴜʏ ᴡᴏʀᴍʟɪ ! - 😆 
+      ✦ - ᴄᴜᴅs ғʀᴇᴇ , ɪ ᴅᴏɴᴛ ʀᴜɴ ᴏʀ ʙɪᴛᴇ ! !
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    ✧ - 𝚒 𝚕𝚘𝚟𝚎 𝚛𝚘𝚙𝚎𝚜 , 𝚜𝚘 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚜𝚌𝚊𝚛𝚎𝚍 𝚒𝚏 𝚑𝚘𝚕𝚍 𝚘𝚗𝚎 . . 𝚘𝚛 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚋𝚎 🤔🤔
+      
+
+                  - 𝙸𝚖𝚙𝚘𝚛𝚝𝚊𝚗𝚝 . - 
+                                ↓
+          ◇ - 𝚒 𝚍𝚘 𝚗𝚘𝚝 𝚖𝚎𝚊𝚗 𝚝𝚘 𝚋𝚎 𝚖𝚎𝚊𝚗 𝚒𝚏 𝚒 𝚎𝚟𝚎𝚛 𝚜𝚙𝚒𝚝 𝚘𝚗 𝚢𝚘𝚞 𝚘𝚛 𝚖𝚊𝚔𝚎 𝚜𝚘𝚖𝚎 𝚓𝚘𝚔𝚎𝚜 , 𝚍𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚝𝚑𝚎𝚖 𝚜𝚎𝚛𝚒𝚘𝚞𝚜 . 
+            𝚙𝚕𝚎𝚊𝚜𝚎 𝚍𝚘 𝚗𝚘𝚝 𝚋𝚘𝚝𝚑𝚎𝚛 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 . 𝚒 𝚑𝚊𝚟𝚎 𝚜𝚘𝚘 𝚖𝚞𝚌𝚑 𝚙𝚛𝚘𝚋𝚕𝚎𝚖𝚜 𝚊𝚋𝚘𝚞𝚝 𝚝𝚑𝚒𝚜 , 𝚒 𝚍𝚘 𝚗𝚘𝚝 𝚕𝚒𝚔𝚎 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚖𝚘𝚛𝚎 𝚘𝚛 𝚕𝚎𝚜𝚜 . 𝚝𝚑𝚎𝚢 𝚊𝚕𝚕 𝚊𝚛𝚎 𝚜𝚙𝚎 𝚝𝚘 𝚖𝚎 .
+                 ♡ - 𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 ! ^ ^ -  ♫
+         ❥   - 𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚝𝚘 𝚝𝚑𝚎𝚜𝚎 𝚒 𝚜𝚙𝚎𝚗𝚍                 𝚖𝚘𝚜𝚝 𝚝𝚒𝚖𝚎 𝚠𝚒𝚝𝚑 . - ❧
+     
+     
