@@ -1,5 +1,4 @@
-i'll work here later brv
+i'll work here later 
+
 old straw is horrible , it'll be back with another character and a rmk .
-and
-look at thsi cutiee
-![ImagineAlt](https://github.com/TheHacker7n7/TheHacker7n7/blob/c55f7fb72af7521705d539b2dfd63139c27b649d/b4029dfff531bf3d14c27e6d81c58a7d.jpg)
+and it'll be fire spirit . im most likely to make a firewind one to because its the comf ship of the person i've been missing .
