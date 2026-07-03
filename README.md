@@ -1,4 +1,3 @@
+! ! $$\color{#FF0000}{hello}$$ $$\color{#FFC700}{fellowlings}$$ ! !
 
-i'll work here later 
-
-straw will be back with a rmk
+callings me sevvy , or by the character i use
