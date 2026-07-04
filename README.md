@@ -19,4 +19,8 @@ I don't add people right away. let me get to know you first
 You can c*h freely! even if with friends
 (unless i have dniuf)
 
-strawpages gonna take an whiilleee.. 
+strawpages gonna take an whiilleee.. sorries people
+
+also w2i, I use personal chat almost all the time, i can instantly reply if not busy or afk 
+
+do not ask personal questions till i have you added.
