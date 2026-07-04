@@ -12,6 +12,9 @@ I don't realllyyyy have much dnis,,
 but if you're under 13, please dni.
 otherwise, feel free to int with me ! !
 
+
 I don't add people right away. let me get to know you first
 
+
 You can c*h freely! even if with friends
+(unless i have dniuf)
