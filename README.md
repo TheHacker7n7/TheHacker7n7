@@ -3,7 +3,7 @@
  $$\color{#FF0000}{!!}$$
  $$\color{#3B6634}{hello}$$  $$\color{#C39B55}{fellowlings}$$ $$\color{#FF0000}{!!}$$  
 
- <p align=“callings me sevvy, or by the character i use” p>
+ <p callings me sevvy, or by the character i use
   
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/d437a27696d11267b296c9a692a35f52468f7e3f/Ba%C5%9Fl%C4%B1ks%C4%B1z289_20260703153747.png)
 
