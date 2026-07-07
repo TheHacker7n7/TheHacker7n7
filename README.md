@@ -27,13 +27,14 @@ strawpages is going to take a while... sorries people
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 shout out to my friends!!😆
 
-
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/c4415d11f66209881981578e9f297e890bbf5dfa/02136d0bec30467abaa0d11c419698b4.gif)
 <br><br>
 also w2i , I use personal chat almost all the time, I can reply instantly if I'm not busy or afk 🤔
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <br><br>
 pls don't ask personal questions until I've added you
+
+![image alt](image_url)
 
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/15412011d94f259c73cbb452f8e4f0decc447677/decor2_20260707121451.png)
 
