@@ -25,4 +25,4 @@ also w2i, I use personal chat almost all the time, i can instantly reply if not 
 
 do not ask personal questions till i have you added.
 
-![image alt]()
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/15412011d94f259c73cbb452f8e4f0decc447677/decor2_20260707121451.png)
