@@ -7,7 +7,7 @@
 callings me sevvy / ivan / viex
   
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/d437a27696d11267b296c9a692a35f52468f7e3f/Ba%C5%9Fl%C4%B1ks%C4%B1z289_20260703153747.png)
-
+<p></p>
 I don't realllyyyy have much dnis,,
 but if you're under 13, please dni.
 otherwise, feel free to int with me ! !
