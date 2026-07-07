@@ -20,7 +20,7 @@ ooothherwise, feel free to interact with me!!
 I don't add people right away , Let me get to know you first.
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <br><br>
-You can c*h freely! even with friends (unless I have dniuf)
+You can c*h freely! even if with friends (unless I have dniuf)
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <br><br>
 strawpages is going to take a while... sorries people
