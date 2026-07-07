@@ -24,3 +24,5 @@ strawpages gonna take an whiilleee.. sorries people
 also w2i, I use personal chat almost all the time, i can instantly reply if not busy or afk 
 
 do not ask personal questions till i have you added.
+
+![image alt]()
