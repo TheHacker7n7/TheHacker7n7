@@ -6,13 +6,13 @@ $$\color{#FF0000}{!!}$$
  $$\color{#3B6634}{hello}$$  $$\color{#C39B55}{fellowlings}$$ $$\color{#FF0000}{!!}$$  
 
  
-callings me sevvy / ivan / viex
+callings me sevvy / ivan / viex !!
   
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/d437a27696d11267b296c9a692a35f52468f7e3f/Ba%C5%9Fl%C4%B1ks%C4%B1z289_20260703153747.png)
 
 <p>
-I don't reallyyyy have much DNIs, but if you're under 13, please DNI.
-Otherwise, feel free to interact with me!!
+I don't reallyyyy have much dnis, but if you're under 12, please dni.
+ooothherwise, feel free to interact with me!!
 
 <br><br>
 
@@ -24,11 +24,13 @@ You can c*h freely! even with friends (unless I have dniuf)
 
 <br><br>
 
-strawpages is going to take a while... sorries
+strawpages is going to take a while... sorries people
+
+shout out to my friends!!😆
 
 <br><br>
 
-also w2i , I use personal chat almost all the time. I can usually reply instantly if I'm not busy or afk
+also w2i , I use personal chat almost all the time, I can reply instantly if I'm not busy or afk 🤔
 
 <br><br>
 
