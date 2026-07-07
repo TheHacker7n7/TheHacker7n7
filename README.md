@@ -28,6 +28,9 @@ strawpages is going to take a while... sorries people
 
 shout out to my friends!!😆
 
+
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/c4415d11f66209881981578e9f297e890bbf5dfa/02136d0bec30467abaa0d11c419698b4.gif)
+
 <br><br>
 
 also w2i , I use personal chat almost all the time, I can reply instantly if I'm not busy or afk 🤔
