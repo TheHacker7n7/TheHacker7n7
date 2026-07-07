@@ -34,7 +34,7 @@ also w2i , I use personal chat almost all the time, I can reply instantly if I'm
 <br><br>
 pls don't ask personal questions until I've added you
 
-![image alt](image_url)
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/967f3fcee73d5053767f435bf4ada2b867ea449b/d2b688357b0c20cebde3745a3043108d.gif)
 
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/15412011d94f259c73cbb452f8e4f0decc447677/decor2_20260707121451.png)
 
