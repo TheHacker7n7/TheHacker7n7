@@ -8,7 +8,7 @@ $$\color{#FF0000}{!!}$$
  
 callings me sevvy / ivan / mob !!
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
-![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/4149483e0a94f98bbbf2c22a662690502d01046e/Ba%C5%9Fl%C4%B1ks%C4%B1z295_20260708004836.png)
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/60a733b6bd1bc1dc7d74e503d56473a9083a232b/mobbbb%F0%9F%A4%A9%F0%9F%A4%A9_20260710102824.png)
 
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <p>
