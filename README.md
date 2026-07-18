@@ -32,7 +32,7 @@ shout out to my friends!!😆
 also w2i , I use personal chat almost all the time, I can reply instantly if I'm not busy or afk 🤔
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <br><br>
-thatmob #1 fan !! I love mob , one of my biggest kins 🤩
+thatmob #1 fan !! I love mob , one of my biggest kins 🤩 YES, im an mobity shipper. ok bye
 ![imagine alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/967f3fcee73d5053767f435bf4ada2b867ea449b/d2b688357b0c20cebde3745a3043108d.gif)
 
