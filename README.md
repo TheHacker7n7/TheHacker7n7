@@ -26,8 +26,13 @@ You can c*h freely! even if with friends (unless I have dniuf)
 strawpages is going to take a while... sorries people
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 shout out to my friends!!😆
-
-![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/c4415d11f66209881981578e9f297e890bbf5dfa/02136d0bec30467abaa0d11c419698b4.gif)
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/5604f38abf3ea4578a40acccb465630908850cff/Ba%C5%9Fl%C4%B1ks%C4%B1z310_20260720233622.png)
+<br><br>
+↑
+<br><br>
+also me btw
+![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
 <br><br>
 also w2i , I use personal chat almost all the time, I can reply instantly if I'm not busy or afk 🤔
 ![image alt](https://github.com/TheHacker7n7/TheHacker7n7/blob/f63b5e106d06177c41704bc8cff389df66e27188/im%20so%20tired%20bro_20260707142450.png)
