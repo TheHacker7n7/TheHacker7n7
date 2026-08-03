@@ -16,5 +16,5 @@ this readme is still in process .<br><br>
   
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=&speed=80&pause=150&color=86954A&center=true&vCenter=true&width=600&lines=Feelings+different+than+believing.;lots+of+feelings+are+deceiving.;i+don't+care+if+i'm+bleeding,;i'd+rather+be+dying;than+this+nightmare+i'm+dreaming+of.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+Script&speed=80&pause=150&color=86954A&center=true&vCenter=true&width=300&lines=Feelings+different+than+believing.;lots+of+feelings+are+deceiving.;i+don't+care+if+i'm+bleeding,;i'd+rather+be+dying;than+this+nightmare+i'm+dreaming+of.)](https://git.io/typing-svg)
 </div>
