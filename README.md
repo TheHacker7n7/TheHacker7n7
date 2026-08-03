@@ -5,8 +5,10 @@
 
 <p align="center">
 greetings fellowlings! callings me <b>sevvy / ivan / viex .</b><br><br>
-isfj . <br><br
-          <br>
+isfj . <br><br>
+<br>
 c+h freely ! even if with friends .<br><br>
 <br>
-dnis ; under 12 , homophobic/transphobic, racist .
+dnis ; under 12 , homophobic/transphobic, racist .<br><br>
+<br>
+this readme is still in process .<br><br>
