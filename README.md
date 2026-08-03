@@ -5,8 +5,8 @@
 
 <p align="center">
 greetings fellowlings! callings me <b>sevvy / ivan / viex .</b><br><br>
-isfj .<br><br>
-<br>
+isfj . <br><br
+          <br>
 c+h freely ! even if with friends .<br><br>
 <br>
-Dani 
+dnis ; under 12 , homophobic/transphobic, racist .
