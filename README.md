@@ -4,8 +4,10 @@
 
 
 <p align="center">
-greetings fellowlings! callings me <b>sevvy / ivan / viex .</b><br><br>
-<b>isfj.</b><br><br>
+<br>
+$$\Large{\color{#9B6F9F}{\text{𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 , 𝗳𝗲𝗹𝗹𝗼𝘄𝗹𝗶𝗻𝗴𝘀 ! 𝗰𝗮𝗹𝗹𝗶𝗻𝗴𝘀 𝗺𝗲 𝘀𝗲𝘃𝘃𝘆 / 𝗶𝘃𝗮𝗻 / 𝘃𝗶𝗲𝘅 .}}}$$<br><br>
+<br>
+$$\Large{\color{#7A5391}{\text{𝗶𝘀𝗳𝗷}}}$$<br><br>
 <br>
 c+h freely ! even if with friends .<br><br>
 <br>
