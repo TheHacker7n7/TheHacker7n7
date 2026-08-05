@@ -9,6 +9,7 @@ $$\color{#9B6F9F}{\text{𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 , 𝗳𝗲𝗹𝗹�
 <br>
 $$\color{#7A5391}{\text{𝗶𝘀𝗳𝗷 .}}$$<br><br>
 <br>
+  <img src="https://your-second-image.png" width="250"><br><br>
 $$\color{#3C1F77}{\text{𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆 ! 𝗲𝘃𝗲𝗻 𝗶𝗳 𝘄𝗶𝘁𝗵 𝗳𝗿𝗶𝗲𝗻𝗱𝘀}}$$<br><br>
 <br>
 $$\color{#765090}{\text{𝗱𝗻𝗶 𝗶𝗳 𝘆𝗼𝘂'𝗿𝗲 ; 𝘂𝗻𝗱𝗲𝗿 𝟭𝟮 , 𝗿𝗮𝗰𝗶𝘀𝘁  𝗵𝗼𝗺𝗼𝗽𝗵𝗼𝗯𝗶𝗰/𝘁𝗿𝗮𝗻𝘀𝗽𝗵𝗼𝗯𝗶𝗰 .}}$$<br><br>
