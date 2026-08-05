@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/f6757814651bd401a54e9c1269a9409777a8cf6c/765068908_1326472809255211_8218955131782537959_n.jpg" width="350">
+  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/f6757814651bd401a54e9c1269a9409777a8cf6c/765068908_1326472809255211_8218955131782537959_n.jpg" width="700">
 </p>
 
 
