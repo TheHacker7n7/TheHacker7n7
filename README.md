@@ -7,7 +7,7 @@
 <br>
 $$\color{#9B6F9F}{\text{𝗚𝗿𝗲𝗲𝘁𝗶𝗻𝗴𝘀 , 𝗳𝗲𝗹𝗹𝗼𝘄𝗹𝗶𝗻𝗴𝘀 ! 𝗰𝗮𝗹𝗹𝗶𝗻𝗴𝘀 𝗺𝗲 𝘀𝗲𝘃𝘃𝘆 / 𝗶𝘃𝗮𝗻 / 𝘃𝗶𝗲𝘅 .}}$$<br><br>
 <br>
-$$\color{#7A5391}{\text{𝗶𝘀𝗳𝗷 .}}$$<b></b>
+$$\color{#7A5391}{\text{𝗶𝘀𝗳𝗷 .}}$$<b><b>
 <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/0c5752567310b71fa2865d03114b4bf62fd48f1e/Ba%C5%9Fl%C4%B1ks%C4%B1z329_20260806020323.png" width="900"><br><br>
 $$\color{#3C1F77}{\text{𝗰+𝗵 𝗳𝗿𝗲𝗲𝗹𝘆 ! 𝗲𝘃𝗲𝗻 𝗶𝗳 𝘄𝗶𝘁𝗵 𝗳𝗿𝗶𝗲𝗻𝗱𝘀}}$$<br><br>
 <br>
