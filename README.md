@@ -4,7 +4,7 @@
 
 <br>
 
-$$\color{#9B6F9F}{\text{Greetings , fellowlings ! callings me sevvy / ivan / viex .}}$$
+$$\color{#9B6F9F}{\text{𝐆𝐫𝐞𝐞𝐭𝐢𝐧𝐠𝐬 , 𝐟𝐞𝐥𝐥𝐨𝐰𝐥𝐢𝐧𝐠𝐬 ! 𝐜𝐚𝐥𝐥𝐢𝐧𝐠𝐬 𝐦𝐞 𝐬𝐞𝐯𝐯𝐲/𝐢𝐯𝐚𝐧/𝐯𝐢𝐞𝐱 .}}$$
 
 $$\color{#7A5391}{\text{isfj .}}$$
 <p align="center">
