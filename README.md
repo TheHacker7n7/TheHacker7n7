@@ -7,18 +7,13 @@
 $$\color{#9B6F9F}{\text{Greetings , fellowlings ! callings me sevvy / ivan / viex .}}$$
 
 $$\color{#7A5391}{\text{isfj .}}$$
-
 <p align="center">
-  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/0c5752567310b71fa2865d03114b4bf62fd48f1e/Ba%C2%A9%C5%9F%C4%B1%C4%B1z329_20260806020323.png" width="900">
+  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/26ab21b7d7d367770943e838a6a3a84e5cb611ce/Ba%C5%9Fl%C4%B1ks%C4%B1z329_20260806020323.png" width="900">
 </p>
 
 $$\color{#3C1F77}{\text{c+h freely ! even if with friends}}$$
 
-$$\color{#765090}{\text{dni if you're ; under 12 , racist homophobic/transphobic .}}$$
-
-<p align="center">
-  this readme is still in process .
-</p>
+$$\color{#765090}{\text{dni if you're ; basic dni , if under 12 , }}$$
 
 <div align="center">
 
