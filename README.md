@@ -13,7 +13,7 @@ $$\color{#7A5391}{\text{isfj .}}$$
 
 $$\color{#3C1F77}{\text{c+h freely ! even if with friends}}$$
 
-$$\color{#765090}{\text{dni if you're ; basic dni , if under 12 , }}$$
+$$\color{#765090}{\text{dni if you're ; basic dni , if under 12 . }}$$
 
 <div align="center">
 
