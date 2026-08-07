@@ -8,7 +8,7 @@ $$\color{#9B6F9F}{\text{Greetings , fellowlings ! callings me sevvy / ivan / vie
 
 $$\color{#7A5391}{\text{isfj .}}$$
 <p align="center">
-  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/26ab21b7d7d367770943e838a6a3a84e5cb611ce/Ba%C5%9Fl%C4%B1ks%C4%B1z329_20260806020323.png" width="900">
+  <img src="https://github.com/TheHacker7n7/TheHacker7n7/blob/042e6f3e6e286db40336c62894a4f922ceb1127f/Ba%C5%9Fl%C4%B1ks%C4%B1z331_20260807112449.png" width="900">
 </p>
 
 $$\color{#3C1F77}{\text{c+h freely ! even if with friends}}$$
