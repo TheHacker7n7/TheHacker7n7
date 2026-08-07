@@ -17,6 +17,6 @@ $$\color{#765090}{\text{𝐝𝐧𝐢 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 : 𝐮𝐧�
 
 <div align="center">
 
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&speed=30&pause=700&color=F7CAC5&center=true&vCenter=true&width=700&lines=Thinkin'+of+things+to+do;Yeah,+only+the+cheapest+things+left+there+for+you.;And+only+thing+i+learned+from+you+is+that+theres+nothing+left,;To+look+forward+to.;I+was+asleep+for+days,+and+now+you're+the+only+thing;Keepin'+me+awake.;The+calculator+will+make+the+same+mistakes;Yeah,+I+see+it+in+its+face.;Hold+on+tight+to+this+time,+this+place;'Cause+everything+you+know+will+be+erased.;You+were+born+inside+your+head;And+that+is+where+you'll+be+when+you+are+dead.;You+are+just+a+boy,+you+are+no+man+and,;Nobody+you+know+will+understand.)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&speed=30&pause=700&color=F7CAC5&center=true&vCenter=true&width=700&lines=Man+,+i+love+what+you+do;Don't+you+know+that+you're+toxic?;...;Intoxicate+me+now+,+with+your+lovin'+now.;I+think+I'm+ready+now+.;I+think+I'm+ready+now+.;Intoxicate+me+now+with+your+lovin'+now+.;I+think+I'm+ready+now+.;Intoxicate+me..+now+.)
 
 </div>
