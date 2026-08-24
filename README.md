@@ -17,6 +17,6 @@ $$\color{#765090}{\text{𝐝𝐧𝐢 𝐢𝐟 𝐲𝐨𝐮'𝐫𝐞 : 𝐮𝐧�
 
 <div align="center">
 
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&speed=30&pause=700&color=B6ADC2&center=true&vCenter=true&width=700&lines=Lately,+I've+been+crying+like+an+tall+child..;So+please,+hurry,+leave+me,+I+can't+breathe.;Please+don't+say+you+love+me.;胸がはち切れそうで)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&speed=30&pause=700&color=B6ADC2&center=true&vCenter=true&width=700&lines='cause+i+need+somebody+to+remember+me.;After+all+that+i+can+do+for+them+is+done.;I+NEED+someone+to+remember+me.;I+NEED+something+bigger+than+the+sky.;Hold+it+in+my+arms+and+know+it's+MINE.;Just+how+many+stars+will+i+need+to+hang+around+me,;To+finally;Call+it;Heaven.)
 
 </div>
